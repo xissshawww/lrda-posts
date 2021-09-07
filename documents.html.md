@@ -55,5 +55,6 @@
 5. [COMPOSTELA資料館](http://www.linkclub.or.jp/~sekizima/compo/compo.htm)
 6. [**水 晶 の 舟** site](http://www.suishounofune.jp)
 7. [森田童子研究所](http://www.gogorocket.jp/doji/h/)
+8. [阿部熏](http://www.yo.rim.or.jp/~t_okuno/ak.html)
 
 

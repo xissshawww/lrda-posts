@@ -15,11 +15,7 @@
 ![](./photos/tokyo-rockers-2.jpeg)
 ![](./photos/tokyo-rockers-3.jpeg)
 
-跟我组乐队失败，然后一起去学法语的wenc表示：
-
-> 9月前，重新写点诗（关于裸集的），但有可能不是[以前那些](https://mp.weixin.qq.com/mp/profile_ext?action=home&__biz=MzU5NTM5NDk5MA==&scene=124#wechat_redirect)，总之重新写东西。
-
-然后头像是[四人囃子猴子专辑](https://www.discogs.com/%E5%9B%9B%E4%BA%BA%E5%9B%83%E5%AD%90-Yoninbayashi-%E4%B8%80%E8%A7%A6%E5%8D%B3%E7%99%BA-Ishoku-Sokuhatsu/master/283315)的和小宇，还有现在说“其实我最喜欢的是[浅川maki](https://www.discogs.com/artist/658862-Maki-Asakawa)”的[Nene](https://ningkko.wordpress.com/)，还有被形容为“一朵开在中文互联网与社交非网络的奇葩，牛皮鲜告示牌”的BinchOuTan（地球），还有火化耳朵的张铎瀚，还有[硫酸饼干](https://matterofti.me/xu-xiang-zao-wu/)，写了小孔集的[弗然](https://mp.weixin.qq.com/s/XLw_fNLdpQQCzTdgnY4GsA)，还有总是热情的朋友们。还有最近开始做《*手册*》杂志，并且在2020年末开始全球征稿的[废船](https://mp.weixin.qq.com/s/XXin09DcPeuwWGtRztlAiA)，当然还有空之穴（hole in the sky），阿一和好几个秘密的网友，一起给朋友们翻译了大量优质内容，关于裸身集会的，也有 关于别的容易被忽视的日本乐队的内容。
+头像是[四人囃子猴子专辑](https://www.discogs.com/%E5%9B%9B%E4%BA%BA%E5%9B%83%E5%AD%90-Yoninbayashi-%E4%B8%80%E8%A7%A6%E5%8D%B3%E7%99%BA-Ishoku-Sokuhatsu/master/283315)的和小宇，还有现在说“其实我最喜欢的是[浅川maki](https://www.discogs.com/artist/658862-Maki-Asakawa)”的[Nene](https://ningkko.wordpress.com/)，还有被形容为“一朵开在中文互联网与社交非网络的奇葩，牛皮鲜告示牌”的BinchOuTan（地球），还有火化耳朵的张铎瀚，还有[硫酸饼干](https://matterofti.me/xu-xiang-zao-wu/)，写了小孔集的[弗然](https://mp.weixin.qq.com/s/XLw_fNLdpQQCzTdgnY4GsA)，还有总是热情的朋友们。还有最近开始做《*手册*》杂志，并且在2020年末开始全球征稿的[废船](https://mp.weixin.qq.com/s/XXin09DcPeuwWGtRztlAiA)，当然还有空之穴（hole in the sky），阿一和好几个秘密的网友，一起给朋友们翻译了大量优质内容，关于裸身集会的，也有 关于别的容易被忽视的日本乐队的内容。
 
 当然还有最棒的[裸身集会脸书秘密小组](https://www.facebook.com/groups/2406438840)，Jim Ranhis称之为Les Rallizes Dénudés Facebook community，组成员还有[久保田麻琴](https://www.makotokubota.org/)，作为裸身集会大部分成员的朋友和曾经的成员，他在小组里也比较活跃。
 
